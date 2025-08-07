@@ -1,2 +1,4 @@
 # hello-world
 Practicing GitHub flow
+Growing up in the Appalachian foothills of the Smoky Mountains, I developed a deep appreciation for the outdoors and southern culture. My childhood was spent doing anything outside including taking backpacking trips with my father and two older brothers, and spending time by the water with my mother. My appalachiam background fuels my passion for activism and the environment, driving me to create positive change wherever I am able. I continue to find peace and inspiration outside, spending my free time outside with my boyfriend on our farm.
+In my professional life, I'm a natural relationship builder with a strong background in sales and client management. My years in person-facing roles have taught me the importance of authentic connection, and the art of listening. I thrive on connecting with people and consistently driving results: a skill set that has been key to my success in helping clients achieve their goals.
